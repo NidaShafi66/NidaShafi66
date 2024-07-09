@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NidaShafi66.
+- 👀 I’m interested in graphics designing and Ui/Ux designing.
+- 🌱 I’m currently learning Software engineering.
+- 💞️ I’m looking to collaborate on designing projects by using graphics and Ui/Ux tools.
+- 📫 you can contact me through my whatsapp number (0318-6624084), my linkedin ID (nidashafi66), my Facebook ID (nidashafi66).
+- ⚡ Fun fact: Friendly and Cooperative.
